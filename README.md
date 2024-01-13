@@ -11,5 +11,6 @@ Onneksi tämä on ihan <sub>mukavaa</sub> <sup>sittenkin</sup>...
 
 > Siinä on sitten pähkinä purtavaksi -Niilo22
 
-Tässä on muuten minun lempi nettisivu: [Facebook] (https://pornhub.com)
+Tässä on minun lempi nettisivu: [Facebook](https://pornhub.com/).
 
+![Kuva hienosta matosta](https://cdn.sotka.fi/tuotteet/uploaded/images/vista-keskilattiamatto-hatuote-22.jpg)
