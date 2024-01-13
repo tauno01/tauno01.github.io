@@ -1,30 +1,22 @@
 # Minun nettisivu
-## No vittu jotain
+## Tämä on otsikko
 
-Vittu tämä on perseestä, **EI VITTU** 
+Noniin, nyt kyllä v**uttaa niin **saat*anasti**...
 
-Tai no, ei tämä _niin_ perseestä ole...
+Justiin kun mä tulin _paskalle_...
 
-***HOMOJA***
+***NIIN***
 
-Onneksi tämä on ihan <sub>mukavaa</sub> <sup>sittenkin</sup>...
+Sitten tota täällä <sub>tapahtu</sub> sen verran että pesin <sup>kädet</sup> enkä muistanu s**tana että täällä on nää tässä...
 
 > Siinä on sitten pähkinä purtavaksi -Niilo22
 
 Tässä on minun lempi nettisivu: [Facebook](https://pornhub.com/).
 
-![Kuva hienosta matosta](https://cdn.sotka.fi/tuotteet/uploaded/images/vista-keskilattiamatto-hatuote-22.jpg)
+-Niilo22
+*Niilo22
++Niilo22
 
-Minun lempiasioita:
+![Niilo22]([https://cdn.sotka.fi/tuotteet/uploaded/images/vista-keskilattiamatto-hatuote-22.jpg](https://static.wikia.nocookie.net/niilo22/images/e/ea/Peukku22.png/revision/latest?cb=20150204163124)https://static.wikia.nocookie.net/niilo22/images/e/ea/Peukku22.png/revision/latest?cb=20150204163124)
 
--Joku
-*Joku
-+Joku
-
-Tai:
-
-1. Joku
-2. Joku
-3. Joku
-
-4. Peukku :+1:
+Kiitos kun luit :+1:
